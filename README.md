@@ -1,6 +1,7 @@
-### Hey! I'm Jamie 👋🙋🏻‍♂️
+### Hey! I'm Jamie 👋
 
 ---
+Here's some things you should know:
 
 - ✏️ I’m currently working to become a **Full Stack Web Developer**!
 - 🌱 I’m currently learning JavaScript and JS Frameworks & Libraries (Node & React)
