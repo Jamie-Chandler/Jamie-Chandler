@@ -1,8 +1,8 @@
-### Hey! I'm Jamie 👋👨🏻‍💻
+### Hey! I'm Jamie 👋🙋🏻‍♂️
 
 ---
 
-- ✏️ I’m currently working on becoming a **Full Stack Web Developer**!
+- ✏️ I’m currently working to become a **Full Stack Web Developer**!
 - 🌱 I’m currently learning JavaScript and JS Frameworks & Libraries (Node & React)
 - 👷🏻‍♂️ I **LOVE** projects and learning!
 - 📫 How to reach me: **email** jchandler678@gmail.com 
