@@ -9,7 +9,8 @@ Here's some things you should know:
 - 💻 I have **over 5 years** of professional experience in Advertising Technology, working with some of the UK's **biggest websites**!
 - ⚡ Fun fact: I am also a **professional Ice Hockey player**!
 
-I'm currently looking to move into a Junior Level **Software Engineer** or **Web Dev** role in the UK 🇬🇧
+I'm currently looking to move into a Junior Level **Software Engineer** or **Web Dev** role in the UK.
 
-Feel free to get in touch! 😄⬇️
+Feel free to get in touch for a chat or a virtual coffee! ☕️😄
+
 📫 Email me: **<jchandler678@gmail.com>** or **[Check out my LinkedIn!](https://www.linkedin.com/in/chandlerjamie/)**
