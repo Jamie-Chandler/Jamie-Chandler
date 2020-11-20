@@ -10,8 +10,9 @@ Here's some things you should know:
 - ⚡ Fun fact: I am also a **semi-professional Ice Hockey player**!
 
 
-📫 Email me: **<jchandler678@gmail.com>** or **[Check out my LinkedIn!](https://www.linkedin.com/in/chandlerjamie/)**
+I'm currently looking to move into a **Software Engineer** or **Web Dev** role in the UK.
 
 Feel free to get in touch for a chat or a virtual coffee! ☕️😄
 
-#### I'm currently looking to move into a **Software Engineer** or **Web Dev** role in the UK.
+📫 Email me: **<jchandler678@gmail.com>** or **[Check out my LinkedIn!](https://www.linkedin.com/in/chandlerjamie/)**
+
