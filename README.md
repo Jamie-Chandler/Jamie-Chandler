@@ -14,4 +14,4 @@ Here's some things you should know:
 
 Feel free to get in touch for a chat or a virtual coffee! ☕️😄
 
-`I'm currently looking to move into a **Software Engineer** or **Web Dev** role in the UK.`
+#### I'm currently looking to move into a **Software Engineer** or **Web Dev** role in the UK.
