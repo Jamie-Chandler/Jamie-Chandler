@@ -14,5 +14,5 @@ I'm currently looking to move into a **Software Engineer** or **Web Dev** role i
 
 Feel free to get in touch for a chat or a virtual coffee! ☕️😄
 
-📫 Email me: **<jchandler678@gmail.com>** or **[Check out my LinkedIn!](https://www.linkedin.com/in/chandlerjamie/)**
+📫 Email me: **<JamieChandlerDev@gmail.com>** or **[Check out my LinkedIn!](https://www.linkedin.com/in/chandlerjamie/)**
 
