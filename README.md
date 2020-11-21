@@ -1,4 +1,4 @@
-### Hey! I'm Jamie 👋
+## Hey! I'm Jamie 👋
 
 ---
 Here's some things you should know:
