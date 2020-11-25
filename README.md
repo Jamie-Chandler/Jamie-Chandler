@@ -16,5 +16,3 @@ Feel free to get in touch for a chat or a virtual coffee! ☕️😄
 
 📫 Email me: **<JamieChandlerDev@gmail.com>** or **[Check out my LinkedIn!](https://www.linkedin.com/in/chandlerjamie/)**
 
-### [View my Business Card & Portfolio](https://jamie-chandler.github.io/portfolio/)
-
